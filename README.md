@@ -4,7 +4,7 @@ I'm new here @ [NeueFische](https://www.neuefische.de/) and i feel kind like a s
 
 Since i was a Kid, In spent my Freetime with playing Pc & ConsoleGames. Also i found a stong connection to HipHopMusic, so i try myselfe a little bit in producing Beatz an writing Songtexes.
  
-Muaik speaks louder than Words...
+Music speak's louder than Words...
 ![AllOut](https://gifdb.com/images/file/zombie-listening-to-music-exo7n635dl7379ld.gif)
 ...there's nothing better! ;)
 
